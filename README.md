@@ -4,5 +4,6 @@
 - 💞️ I’m looking to collaborate on entrepreneurship and social projects.
 - 📫 How to reach me betotosteven@gmail.com
 - Facebook : https://www.facebook.com/betotosteven.bsae.mg
-- LinkedIn : https://www.linkedin.com/in/betotosteven/
+- LinkedIn : https://www.linkedin.com/in/betotostevenbsaemg/
 - Instagram : https://www.instagram.com/betotosteven.bsae.mg/
+- Siteweb : https://betotosteven.bsae.mg
