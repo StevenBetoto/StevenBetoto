@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Steven BETOTO.
-- 👀 I’m interested in personal imporvement, entrepreneurship and philanthropy projects.
+- 👀 I’m interested in personal improvement, entrepreneurship and philanthropy projects.
 - 🌱 I’m currently learning about project management.
 - 💞️ I’m looking to collaborate on entrepreneurship and social projects.
 - 📫 How to reach me betotosteven@gmail.com
